@@ -1,5 +1,8 @@
 # africa.github.io
-[youtube](https://www.youtube.com/) 
+[ Border vouches](t.me/bordervouchess) 
 
 
-[Annoucements](https://t.me/borderannouncements)
+[ Check border announcements](https://t.me/borderannouncements)
+
+
+[Main border chat](t.me/BORDERMAINCHAT)
